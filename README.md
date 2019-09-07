@@ -1,1 +1,1 @@
-# clemson-tigers
+# The Clemson Tigers
